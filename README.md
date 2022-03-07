@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ahcrapurmomhot
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning about ur mom
-- 💞️ I’m looking to collaborate on ur mom
+- 💞️ I’m looking to collaborate with ur mom
 - 📫 How to reach me call ur mom
 make sure you tell ur mom shes hot
 <!---
